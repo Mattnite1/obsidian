@@ -1,0 +1,9 @@
+.MathJax {
+font-size: 1.3em;
+font-weight: 900;
+}
+
+cm-hmd-indented-code {
+    color: var(--text-normal);
+    font: var(--text);
+}

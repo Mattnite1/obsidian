@@ -1,0 +1,1 @@
+##### 11. Średniowieczny etos rycerski. Omów zagadnienie na podstawie znanych Ci fragmentów Pieśni o Rolandzie. W swojej odpowiedzi uwzględnij również wybrany kontekst.

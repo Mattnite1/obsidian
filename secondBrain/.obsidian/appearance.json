@@ -1,0 +1,9 @@
+{
+  "enabledCssSnippets": [
+    "appearance"
+  ],
+  "theme": "obsidian",
+  "accentColor": "",
+  "showViewHeader": false,
+  "showRibbon": true
+}
