@@ -7,7 +7,7 @@
 - Przyglądając się głównemu bohaterowi może dostrzec, że największym problem jest zbyt skrajny materializm. Harpagon nie zarabia pieniędzy, żeby je wydawać, on jest po prostu zbiera. Pieniądze stały się jego jedynym życiowym celem, ma to charakter destrukcyjny i jest skazany na samotność
 - Dosadnie widać to na końcu utworu. Gdy odnajduje zaginioną szkatułkę przytula ją jak ukochaną osobę, tymczasem, jego dzieci wybrały miłość 
 - Przypadek Harpagona uświadamia nam, że dobra materialne nie uszczęśliwią człowieka, gdy staje się to jego jedyną wartością, wręcz obsesją
-- 
+
 *Kontekst: Król Midas to znana z greckich postać. Był znany ze swojej chciwości, zapragnął by Dionizos obdarzył go mocą, która sprawiała, że wszystko co dotknie zmienia się w złoto. Król nie był świadomy, że to całkowicie zrujnuje jego życie. Nie mógł jeść, pić, a własną córkę zamienił w złotą statuetke, co go całkowicie załamało. *
 
 ##### 16. Przyczyny nieporozumień między rodzicami a dziećmi. Omów zagadnienie na podstawie Skąpca Moliera. W swojej odpowiedzi uwzględnij również wybrany kontekst.
