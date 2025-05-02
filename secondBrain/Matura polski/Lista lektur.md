@@ -20,12 +20,14 @@ Juliusz Słowacki, Kordian
 Eliza Orzeszkowa, Gloria victis 
 Henryk Sienkiewicz, Potop 
 <font color="#2DC26B">Fiodor Dostojewski, Zbrodnia i kara </font>
-Stanisław Wyspiański, Wesele 
+<font color="#2DC26B">Stanisław Wyspiański, Wesele </font>
 <font color="#2DC26B">Stefan Żeromski, Przedwiośnie </font>
 Tadeusz Borowski, opowiadania: Proszę państwa do gazu, Ludzie, którzy szli 
 Gustaw Herling-Grudziński, Inny świat 
+<font color="#2DC26B">Władysław Stanisław Reymont, Chłopi (tom I – Jesień)</font>
 Hanna Krall, Zdążyć przed Panem Bogiem 
 Albert Camus, Dżuma 
+Witold Gombrowicz, Ferdydurke (fragmenty)
 George Orwell, Rok 1984 
 Sławomir Mrożek, Tango 
 Marek Nowakowski, Raport o stanie wojennym (wybrane opowiadanie), Górą „Edek” (z tomu Prawo prerii) 
