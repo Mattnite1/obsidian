@@ -37,7 +37,7 @@
 - Poecie ukazuje się Zawisza Czarny. Jako przykład rycerskiego etosu, próbuje obudzić w nim twórczą moc i patriotyczne działania oraz zarzuca mu dekadentyzm. 
 - Dziada nawiedza upiór Jakuba Szeli, przywódca rabacji galicyjskiej. Przypomina on      o bratobójczej walce i nierozliczonych konfliktach między chłopami, a inteligencją. 
 - Gospodarzowi objawia się Wernyhora, legendarny wieszcz ukraiński. Powierza mu on misję poprowadzenia powstania oraz daję złoty róg, czyli symbol walki o wolność.
-- Na końcu dramatu Chochoł wprowadza wszystkich weselników w chocholi taniec. Goście tańczą w sposób rytmiczny, uśpiony i hipnotyczny. Symbolizuje o niemoc oraz  brak gotowości polskiego społeczeństwa na odzyskanie niepodległości  
+- Na końcu dramatu Chochoł wprowadza wszystkich weselników w chocholi taniec. Goście tańczą w sposób rytmiczny, uśpiony i hipnotyczny. Symbolizuje on niemoc oraz  brak gotowości polskiego społeczeństwa na odzyskanie niepodległości  
 - Wyspiański za pomocą symboliki zjaw ujawnia zarówno lęki poszczególnych postaci dramatu, jak i ich wzajemne uprzedzenia lub pragnienia.
 
 *Kontekst: Opowieść wigilijna* 
@@ -49,6 +49,6 @@
 - Taniec weselny jest dynamiczny i pełen energii, stanowi obraz ich życia, jednak także podkreśla brak jedności między obydwa grupami w obliczu narodowych wyzwań.
 - Jednak najbardziej symbolicznym momentem jest zakończenie utworu. Chochoł wprawia weselników w uśpiony i rytmiczny taniec. Symbolizuje on zarówno stagnacje polaków, jak i niegotowość do odzyskania przez Polskę niepodległości. Staję się on również metaforą zniewolenia.
 - Sam Chochoł jako słomiana otulina chroniąca przed mrozem pomimo wprowadzenia weselników w stan uśpienia jest nadzieją na nadejście wiosny, czyli przyszłe pobudzenie polaków 
-- Dodatkowo Wyspiański poprzez taniec pokazuje tylko pozorne pojednanie obudwu grup, gdzie w rzeczywistości konflikt nadal panuje. 
+- Dodatkowo Wyspiański poprzez taniec pokazuje tylko pozorne pojednanie obydwu grup, gdzie w rzeczywistości konflikt nadal panuje. 
 
 *Kontekst: Danse Macabre -> Symbolika tańca ze śmiercią. Tańczący ludzie niezależnie od tego w jakim są położeniu materialnym, czy społecznym są tak samo narażeni na spotkanie ze śmiercią.*

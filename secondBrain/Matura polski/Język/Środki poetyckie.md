@@ -32,7 +32,7 @@
 
 **Oksymoron** - metaforyczne zestawienie dwóch wyrazów o przeciwstawnym, wykluczającym się wzajemnie znaczeniu, np. _zimny ogień_.
 
-**Personifikacja (uosobienie)** – rodzaj metafory przedstawiającej  twory nieożywione, zjawiska natury, zwierzęta, rośliny, a także pojęcia abstrakcyjne jako postacie ludzkie, działające lub przemawiające np. s_łońce śmiało się._
+**Personifikacja (uosobienie)** – rodzaj metafory przedstawiającej  twory nieożywione, zjawiska natury, zwierzęta, rośliny, a także pojęcia abstrakcyjne jako postacie ludzkie, działające lub przemawiające np. słońce śmiało się.  
 
 **Peryfraza** - omówienie, zastąpienie nazwy zjawiska przez jego rozbudowane opisanie, np. _kraj kwitnącej wiśni – Japonia_.
 

@@ -6,7 +6,7 @@
 - Okazuje się jednak, że po dokonaniu tego aktu, młodzieniec zaczyna odczuwać wielkie wyrzuty sumienia. Prowadzi ze sobą wewnętrzną walkę. Próbuje usprawiedliwić swoje działania, lecz nie potrafi przezwyciężyć moralnej odpowiedzialności za swoje czyny. Wpada w głęboki kryzys psychiczny i pojawiają mu się myśli samobójcze. 
 - Jest to też symboliczna walka dobra ze złem, człowieczeństwa i pychą. Raskolnikov ostatecznie pod wpływem Sonii, postanawia przyznać się do winy. Zostaje skazany na 8 lat katorgi. Traktuje to jako pewnego rodzaju swoje **Katharsis - oczyszczenie**. które pozwoli mu wrócić do normalnego życia
 - Historia Raskolnikova ukazuje, że proces walki ze własnym słabościami jest trudny, ale konieczny. 
-- Dostojewski pokazuje, że człowiek jest pełen sprzeczności, a jego życia to nieustanna walka ze samym sobą 
+- Dostojewski pokazuje, że człowiek jest pełen sprzeczności, a jego życie to nieustanna walka ze samym sobą 
 ##### 35. Motyw winy i kary. Omów zagadnienie na podstawie Zbrodni i kary Fiodora Dostojewskiego. W swojej odpowiedzi uwzględnij również wybrany kontekst.
 
 - Wina i kara to jeden z najważniejszych motywów w historii literatury. Odwołuje się on do naturalnej potrzeby istnienia sprawiedliwości.
@@ -33,7 +33,7 @@
 - Postanawia on zabić lichwiarkę, ponieważ uważał, że szkodzi społeczeństwu. Trudna sytuacja materialna i jego głębokie przemyślenia nad wyższością osób wybitnych i ich moralne usprawiedliwienie popełnianych grzechów, motywują go do popełnienia tej zbrodni. 
 - Jednak po dokonaniu tego aktu, bohater nie odczuwa, ani satysfakcji, ani ulgi, którą chciał osiągnąć w imię walki o sprawiedliwość, wręcz przeciwnie, atakują go potężne wyrzuty sumienia i poczucie winy.
 - Kluczową role w pomocy z psychiką odgrywa Sonia i własna nieporadność w wewnętrznej walce. Dziewczyna namawia go, aby oddał się w ręce policji i poniósł zasłużoną karę. 
-- Bohater ostatecznie przyznaje się do zabójstwa i zostaje skazany. Ta decyzja była determinowana przez wpływ Sonii, chęć poczuci ulgi, czy pragnienie odkupienia swoich win. Kara stała się dla niego procesem oczyszczenia..
-- Dostojewski ukazuje złożoność decyzyjność człowieka, która jest kształtowana przez zarówno czynniki zewnętrzne, jak i wewnętrzne
+- Bohater ostatecznie przyznaje się do zabójstwa i zostaje skazany. Ta decyzja była determinowana przez wpływ Sonii, chęć poczucia ulgi, czy pragnienie odkupienia swoich win. Kara stała się dla niego procesem oczyszczenia..
+- Dostojewski ukazuje złożoność decyzyjności człowieka, która jest kształtowana przez zarówno czynniki zewnętrzne, jak i wewnętrzne
 
 Kontekst: Joe Goldberg -> Mordował tłumacząc to chronieniem swojej aktualnej obsesji lub chęcią zdobycia jej. 

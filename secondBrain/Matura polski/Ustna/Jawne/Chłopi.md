@@ -2,7 +2,7 @@
 
 - Obyczaje i tradycja to bardzo ważny element w życiu społecznym. Są pewnego rodzaju łącznikiem między pokoleniami oraz podtrzymują tożsamość narodową na przestrzeni wieków. 
 - W polskiej literaturze, autorzy bardzo często opisywali **folklor**, czyli zbiór zwyczajów i tradycji, które tworzą kulturę społeczeństwa i są przekazywane z pokolenia na pokolenie. 
-- W powieści Władysława Reymonta "chłopi" mamy dokładnie przedstawione bogactwo chłopskiej kultury oraz obyczajów. Autor nie tylko ukazuje ich codzienność, ale również ich wewnętrzne konflikty, czy tradycje i rytuały.
+- W powieści Władysława Reymonta "chłopi" mamy dokładnie przedstawione bogactwo chłopskiej kultury oraz obyczajów. Autor nie tylko ukazuje ich codzienność, ale również ich wewnętrzne konflikty czy tradycje i rytuały.
 - W Tomie 1 "Jesień" zostało dokładnie ukazane jak chłopi intensywnie pracują, aby dobrze przygotować się do zimy. Dodatkowo barwnie zostało przedstawione wesele wdowca Macieja Boryny z młodą Jagną Paczesiówną. Zanim doszło do ślubu pan młody wybierał osobę, która w jego imieniu szła negocjować z matką rękę córki. Podczas tego, widzimy zwyczaj zwany przepijaniem, czyli picie wódki za zdrowie przyszłej pary. W dniu wesela para młoda musiała poddać się wielu rytuałom, między innymi przyprowadzenie pana młodego przez muzykantów i gości do domu panny młodej, ślub kościelny, wesele, czy zbieranie pieniędzy dla nowożeńców. 
 - Reymont ukazuje jak tradycje i obyczaje łączyły chłopów oraz dostarczały im rozrywkę.
 
