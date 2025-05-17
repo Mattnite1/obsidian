@@ -1,0 +1,8 @@
+##### 65. W jakim celu autor nawiązuje w swoim tekście do innego tekstu? Omów zagadnienie na podstawie utworu Górą „Edek” Marka Nowakowskiego. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+-  Wielu autorów, świadomie bądź nieświadomie, nawiązuje w swoim tekście do innego tekstu. Zabieg ten podkreśla uniwersalność przedstawionych problemów oraz pogłębia sens i ułatwia zrozumienie przesłania utworu.
+- W opowiadaniu Górą Edek występuje jednoznaczne nawiązanie do dramatu Tango Mrożka. Aby czytelnik dostrzegł tę aluzje musi znać postać Edka i jej znaczenie, która stała się symbolem określonego schematu zachowań.
+- Nowakowski świadomie nawiązał do tej sztuki, aby symbolicznie przedstawić zjawiska społeczne lat 90. XX wieku. Sławomir Mrożek w swoim groteskowym dramacie stworzył postać Edka jako uosobienie prymitywizmu, brutalności i bezwzględności. Działa on bez skrupułów, a intelektualista taki jak Artur nie ma z nim szans w bezpośredniej konfrontacji. 
+- W opowiadaniu mamy przedstawioną sytuację, w której mężczyzna opisany jako niewysoki i drobny mężczyzna, próbuje znaleźć miejsce do parkowania swoim małym facikiem. Gdy znajduje miejsce jego niezdecydowanie sprawia, że inny kierowca, czyli wysoki, tęgi facet w nowym suvie wpycha się na jego miejsce. Nie reaguje i olewa uwagi inteligenta. Ta prosta historia obrazuje zjawisko „zdziczenia” społeczeństwa oraz, że brutalna siła zazwyczaj wygrywa z inteligencją. 
+- Nawiązanie do postaci Edka z „Tanga” Mrożka pozwala Nowakowskiemu pokazać uniwersalny problem. Edek to symbol siły, bezkompromisowości i moralnego upadku.
+- Aluzja do dramatu Mrożka nie tylko wzbogaca historię, ale również stanowi głos w debacie o moralności i kondycji współczesnego człowieka.

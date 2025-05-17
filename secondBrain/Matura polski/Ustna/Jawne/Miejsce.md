@@ -1,0 +1,8 @@
+##### 66. Jaką wartość dla człowieka ma pamięć o przeszłości? Omów zagadnienie na podstawie Miejsca Andrzeja Stasiuka. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+- Pamięć o przeszłości ma wielką wartość dla człowieka. Dzięki niej możemy pielęgnować wspomnienia o ważnych wydarzeniach, które kształtują naszą tożsamość i móc wyciągać z nich wnioski.
+- W opowiadaniu Stasiuka ten motyw odgrywa kluczową rolę dla całokształtu dzieła. Autor przedstawia historie łemkowskiej cerkwi, która podniszczona, została rozebrana, zrekonstruowana i wywieziona jako muzealny eksponat dla turystów. To wydarzenie stało się zapalnikiem do głębokich refleksji autora.
+- Narrator próbuje w swojej głowie odtworzyć proces powstawania cerkwi, zastanawiając się nad jej znaczeniem dla społeczności Łemków. Przywołuje historie różnych ludzi dla których cerkiew była ważnym elementem życia.
+- Przykładem jest pewien starzec, który przed śmiercią wrócił, aby po raz ostatni zobaczyć miejsce swojego chrztu i dzieciństwa. 
+- Stasiuk wskazuje, że miejsca nie da się przenieść, bo jego znaczenie jest zakorzenione w konkretnej społeczności. Cerkiew wyrwana z jej pierwotnego otoczenia przestaję być symbolem wspólnoty. Jest tylko budynkiem. 
+- Opowiadanie „Miejsce” uświadamia, jak ważną rolę w życiu duchowym człowieka pełni przeszłość. Pamięć staje się strażnikiem dawnej kultury Łemków, po której zostały już tylko nieliczne ślady.

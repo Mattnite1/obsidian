@@ -1,0 +1,18 @@
+##### 48. Groteskowy obraz świata. Omów zagadnienie na podstawie znanych Ci fragmentów Ferdydurke Witolda Gombrowicza. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+- Groteskowy obraz świata to specyficzny sposób kreacji rzeczywistości, odbiegający od realizmu, ukazany w krzywym zwierciadle wypełniony absurdem. 
+- Pojęcie groteski łączy ze sobą elementy na pozór wydające się sprzeczne ze sobą, między innymi komizn i tragizm czy fantastykę i realizm. Przedstawione zdarzenia bywają absurdalne i irracjonalne. Podkreślają chaos świata i zmuszają odbiorcy do głębszej refleksji. 
+- W ferdydurke Gombrowicza groteskowy obraz świata jest jednym z kluczowych elementów, który nadaje utworowi jego wyjątkowy charakter. Wydarzenia w powieści są przedstawione w zaskakujący sposób. Główny bohater, trzydziestoletni mężczyzna o imieniu Józio, zostaje wciągnięty w absurdalne sytuacje. Zostaje on z powrotem wysłany do szkoły. Gombrowicz pokazuje, że człowiek kształtuje człowieka, narzucając mu formę – sposób bycia, zachowania, postawy, światopogląd czy język. Forma jest nieodłącznym elementem życia. Jej przykład możemy zaobserwować w wielu sytuacjach w szkole. Nauczyciel Bladaczka narzuca formę uczniom – nakazuje im bezrefleksyjnie powtarzać zdanie: „Słowacki wielkim poetą był”.
+- Groteskowy obraz świata w „Ferdydurke” spowodował, że powieść Gombrowicza jest nie tylko nowoczesna i ciekawa, ale przede wszystkim, dzięki zdeformowaniu rzeczywistości i ukazaniu jej w absurdalny sposób, wydobywa specyficzność relacji międzyludzkich
+- Groteska została wykorzystana nawet podczas zakończenia utworu. Gombrowicz kończy książkę absurdalnymi słowami: "koniec i bomba, a kto czytał ten trąba"
+
+*Kontekst: Tango -> świat w grotesce, absurdalne sytuacje. 
+##### 49. Człowiek wobec presji otoczenia. Omów zagadnienie na podstawie znanych Ci fragmentów Ferdydurke Witolda Gombrowicza. W swojej odpowiedzi uwzględnij również wybrany kontekst.
+
+- Człowiek w trakcie swojego życia cały czas jest poddawany presji społecznej. Otoczenie wywiera na niego nacisk, a zgodnie z zasadami życia społecznego,  przyjmuje przypisane mu role. Każde spotkanie z drugim człowiekiem staje się okazją do założenia maski, która zostaje narzucona w wyniku kontaktu z otaczającymi go ludźmi.
+- „Ferdydurke” Witolda Gombrowicza to utwór, który wnikliwie i w sposób groteskowy analizuje mechanizmy oddziaływania człowieka na człowieka oraz wpływ presji otoczenia na jednostkę. Wprowadza on koncepcje formy, czyli mechanizmu, który narzuca na ludzi określony sposób zachowań w danej sytuacji. 
+- Główny bohater powieści, trzydziestoletni Józio Kowalski, zostaje wciągnięty w absurdalne wydarzenia. Zostaje "upupiony", czyli sprowadzony do roli dziecka i wysłany z powrotem do szkoły pomimo swojej głębokiej dorosłości. W szkole Józio staję się świadkiem działania formy przyjmując role ucznia. Jednym z przykładów presji formy jest scena lekcji języka polskiego, podczas której profesor Bladaczka wymaga od uczniów bezrefleksyjnego powtarzania frazy: „Słowacki wielkim poetą był”. Uczniowie powtarzają zdanie nie zastanawiając się nad jego treściom. 
+- Człowiek, będąc istotą społeczną, zawsze podlega wpływom otoczenia i zmuszony jest do odgrywania ról narzuconych przez innych. Jedyną formą obrony przed presją otoczenia, jak sugeruje Gombrowicz, jest świadomość istnienia formy i jej działania. Uświadomienie sobie narzuconych masek i ról pozwala człowiekowi w pewnym stopniu kontrolować ich wpływ i kształtować swoją osobowość. 
+- Gombrowicz jednak stwierdza, że nie da się uciec przed forma.
+
+*kontekst: przykład presji społecznej został ukazany rownież w Makbecie*
