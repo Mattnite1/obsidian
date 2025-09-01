@@ -1,0 +1,11 @@
+{
+	"id": "Homepage",
+	"name": "Plugin",
+	"version": "1.0.0",
+	"minAppVersion": "0.15.0",
+	"description": "Demonstrates some of the capabilities of the Obsidian API.",
+	"author": "Mattnite",
+	"authorUrl": "HTtps://obsidian.md",
+	"fundingUrl": "https://obsidian.md/pricing",
+	"isDesktopOnly": false
+}
